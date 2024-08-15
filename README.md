@@ -2,6 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning MEARN Stack
 - 📫 You Can reach me 8958145220
+- email: junaidhusain2628@gmail.com
 - 😄 Pronouns: Junaid
 
 <!---
